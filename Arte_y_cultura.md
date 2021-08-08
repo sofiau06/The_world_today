@@ -1,0 +1,14 @@
+
+CALI SE ALISTA PARA EL RENACER DE SU FESTIVAL INTERNACIONAL DE TEATRO
+
+Al colectivo Kamchàtka, integrado por artistas catalanes le apasiona crear historias y plantear reflexiones a partir del teatro de calle. Esta expresión de improvisación teatral que transforma lugares y crea espacios de diálogos a partir de la cotidianidad ha llevado al grupo europeo a importantes escenarios del mundo.
+Una muestra de su trabajo se podrá apreciar hoy, martes (5 p. m.) en el Museo La Tertulia, durante la apertura de la edición 2021 del Festival Internacional 
+de Teatro de Cali, del cual es uno de los invitados.
+“Los Kamchàtka van creando una realidad paralela, abriendo un espacio de diálogo, donde el espectador se convierte en actor del intercambio y de la experimentación. Así es como ellos crean los personajes,con su historia, sus miedos y sus ansias de descubrimiento, deslizándose lentamente en un lugar desconocido,haciendo florecer sus emociones sin reserva”,destaca Lina María Andrade, productora del festival. El Festival Internacional de Teatro de Cali, FITCali 2021 regresa con una apuesta presencial con espectáculos y actividades académicas en diferentes 
+salas y espacios públicos de la ciudad con los protocolos de protección y bioseguridad.
+Bajo el lema ‘Renace la escena’, esta cita artística, organizada por la Secretaría de Cultura de Cultura distrital, contará con 36 espectáculos programados a través de 70 funciones con la que buscan cubrir la amplia dimensión de las artes escénicas.
+“Nos alegra poder volver a la presencialidad, a vivir la magia que despierta la relación directa deespectadores y artistas escénicos”, expresa Susana Uribe Bolaños, directora del festival. Los asistentes podrán disfrutar con presentaciones de teatro infantil, contemporáneo, físico, gestual, circo, danza-teatro y performance. Además se desarrollará una agenda académica que buscará reflexionar, explorar y dialogar sobre el teatro de laactualidad.
+Dentro de este apartado académico se desarrollará el Seminario FITCali ‘Dialogando la escena’, que tiene como enfoque la dramaturgia caleña: ‘Escenarios para la infancia’.
+
+De igual manera se hará la Muestra de artes escénicas en formato audiovisual.En esta cita con las artes escénicas se le rendirá el homenaje ‘Toda una vida’ a Jorge Vanegas, y el ‘Póstumo’ a Helios Fernández.
+“Queremos que el público regrese a nuestras salas de teatro, a espacios donde circulan nuestros artistas y este festival es la oportunidad para que nos reencontremos con la cultura y para que nos conectemos con lo que sucede en las tablas y hagamos que esta escena renazca como está renaciendo nuestra ciudad”, expresa Ronald Mayorga, secretario de Cultura de Cali.
